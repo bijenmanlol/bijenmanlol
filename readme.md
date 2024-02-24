@@ -6,7 +6,7 @@
 I like coding and uhm.. coding and yeah coding.<br>
 My first language is Dutch and I can also speak English. *I mean who doesn't these days*<br>
 I also like **racoons**!! 🦝<br>
-Here you can find all my socials: https://drooler.tk/.<br>
+Here you can find all my socials: https://bit.ly/drooler.<br>
 
 ### Stats
 
