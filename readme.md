@@ -1,4 +1,4 @@
-## Drooler 🦝
+## Drooler
 
 ### Introduction
 
